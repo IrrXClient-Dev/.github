@@ -15,5 +15,5 @@ Discord: https://discord.gg/k8pkpktYdK
 ***
 
 > ### Moon Client
-> [Discord](https://discord.gg/k8pkpktYdK) | [YouTube](https://www.youtube.com/channel/UChTF8QEWB__jn4HQGrKiJxw) |<br>
+> [Discord](https://discord.gg/k8pkpktYdK) | [YouTube](https://www.youtube.com/@AlizqUwU) |<br>
 > Copyright 2023 Moon Client - Alizq and ringoXD(prita360)
